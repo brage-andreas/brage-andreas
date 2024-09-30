@@ -8,4 +8,4 @@ I'm a self-taught developer who loves turning ideas into clean, functional code.
 * 😇 Big on collaboration, attention to detail, and creativity — kindness is key!
 * ✨ Always looking to optimize and refactor for better performance and clarity
 
-<sub>[Photo by alexxhinson](https://x.com/alexxhinson/status/1527712915842682880)</sub>
+<sub>[Photo by alexxhinson](https://x.com/alexxhinson/status/1527712915842682880) • [Profile avatar by Juice Bruns](https://x.com/juice_bruns/status/1750147968148083127)</sub>
